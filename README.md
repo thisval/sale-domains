@@ -10,5 +10,11 @@ These domains for saile!
 
 - BinArk.com
 
+- 1024km.com
+
+- LateGod.com
+
+- BayCity.xyz
+
 ### Contact
 Contact me: thisvar[at]live.com
